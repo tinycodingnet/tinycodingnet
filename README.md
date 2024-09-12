@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @tinycodingnet
+- 👀 I’m interested in: Everything.
+- 🌱 I’m currently learning: Nothing.
+- 💞️ I’m looking to collaborate on: Anything and everything.
+- 📫 How to reach me: tinycoding.net@icloud.com
+- 😄 Pronouns: Fuck that. I'm a guy.
+- ⚡ Fun fact: Font_awesome? No. Just CSS.
